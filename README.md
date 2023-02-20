@@ -1,2 +1,2 @@
-# growtopia-premium-proxy-cracked
+# Growtopia Premium Proxy
 Silviozas Premium Proxy Cracked
